@@ -3,12 +3,10 @@ My first repository
 
 ## Never Had a Chance While They Were There:   **DREDD (2012)** 
 ##### November 28, 2023 | **Marvin T. Cayobit**
-
 > Violence can be very grotesque and also intensely attractive. What interests me is how the two - beauty and violence - 
 > live side by side, and how moments can be created and erased almost simultaneously. 
 > Destruction is painful, but at times it can be very cathartic."
 > - Ori Gersht
-<br>
 When this film came out, I was 22 years old. After a long day at work, I went to the theater and bought a ticket, little knowing that what I was about to witness was a stunning ballet of violence and clever storytelling.
 <br>
 **"DREDD"**, which starred Karl Urban and Olivia Thirlby in 2012, is one of my favorite action movies.   While some fans think it's underrated, others think it's a failure. The gritty, dystopian atmosphere of Mega-City One is aptly captured by Dreed, who as a sci-fi and dystopian genre enthusiast creates a visually striking backdrop for the narrative.
