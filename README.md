@@ -7,6 +7,8 @@ My first repository
 ##### November 28, 2023 | **Marvin T. Cayobit**
 
 <br>
+<br>
+<br>
 
 > "Violence can be very grotesque and also intensely attractive. What interests me is how the two - beauty and violence - live side by side, and how moments
 > can be created and erased almost simultaneously. Destruction is painful, but at times it can be very cathartic."
