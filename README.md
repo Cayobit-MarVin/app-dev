@@ -1,7 +1,6 @@
 # app-dev
 My first repository
 
-
 ![Dredd 2012](https://thecorvidreview.files.wordpress.com/2016/11/4074029-dredd2.jpg?w=1100)
 ## Never Had a Chance While They Were There:   **DREDD (2012)** 
 ##### November 28, 2023 | **Marvin T. Cayobit**
