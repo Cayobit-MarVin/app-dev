@@ -18,7 +18,7 @@ The movie is set in a dystopian future in which a large portion of Earth has tur
 
 In essence, the movie follows Judge Dredd as he administers justice in a violent and chaotic world, day in and day out. For lovers of the character and the genre, the film offers a gritty and compelling experience because of its cramped setting and nonstop action.
 
-![Dredd 2012](https://s.movieinsider.com/images/p/600//105264_m1348276391.jpg)![Dredd 2012](https://m.media-amazon.com/images/M/MV5BMjhjNDVkY2MtOTljNy00NjhlLWJmZTEtMTFmM2VjNjM2YTA5XkEyXkFqcGdeQVRoaXJkUGFydHlJbmdlc3Rpb25Xb3JrZmxvdw@@._V1_QL75_UX500_CR0,0,500,281_.jpg)
+![Dredd 2012](https://s.movieinsider.com/images/p/600//105264_m1348276391.jpg)(https://m.media-amazon.com/images/M/MV5BMjhjNDVkY2MtOTljNy00NjhlLWJmZTEtMTFmM2VjNjM2YTA5XkEyXkFqcGdeQVRoaXJkUGFydHlJbmdlc3Rpb25Xb3JrZmxvdw@@._V1_QL75_UX500_CR0,0,500,281_.jpg)
 
 The action scenes in this film are particularly well-known for being powerful and skillfully done.   The movie features strong visual effects that add to the immersive depiction of the futuristic world. The action scenes are choreographed and shot in a way that enhances the overall experience. The film embraces *violence*. For their striking visuals, the slow-motion drug scenes are especially noteworthy.
 
