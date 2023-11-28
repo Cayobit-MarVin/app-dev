@@ -29,6 +29,6 @@ The action scenes in this film are particularly well-known for being powerful an
 
 Fans of the "Judge Dredd" comic series have expressed appreciation for the film's fidelity to the source material, even though I haven't seen the first Sylvester Stallone film yet (1995). Fans could relate to the way it encapsulated the spirit of the character and the setting.
 
-Though **"Dredd"** attracted a cult following and received positive reviews for these reasons **(80% RottenTomatoes, 75% Audience Score)**, Dredd earned $27.6 million from markets outside of North America and $13.4 million from North America, for a total of $41 million despite its bugdet of $45 million However, I still think this is an incredible film and that you should see it even ten years after it was released.
+Though **"Dredd"** attracted a cult following and received positive reviews for these reasons **(80% RottenTomatoes, 75% Audience Score)**, if failed to fill the pockets of Lionsgate earning only a total of $41 million despite its bugdet of $45 million. However, I still think this is an incredible film and that you should see it even ten years after it was released.
 
 
