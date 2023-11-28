@@ -6,8 +6,8 @@ My first repository
 ## Never Had a Chance While They Were There:   **DREDD (2012)** 
 ##### November 28, 2023 | **Marvin T. Cayobit**
 
-> "Violence can be very grotesque and also intensely attractive. What interests me is how the two - beauty and violence - live side by side, and how moments can be created and erased almost simultaneously. 
-> Destruction is painful, but at times it can be very cathartic."
+> "Violence can be very grotesque and also intensely attractive. What interests me is how the two - beauty and violence - live side by side, and how moments
+> can be created and erased almost simultaneously. Destruction is painful, but at times it can be very cathartic."
 > -- Ori Gersht
 
 When this film came out, I was 22 years old. After a long day at work, I went to the theater and bought a ticket, little knowing that what I was about to witness was a stunning ballet of violence and clever storytelling.
