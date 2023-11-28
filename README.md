@@ -2,7 +2,7 @@
 My first repository
 
 
-![Dredd 2012](https://i0.wp.com/cultfollowing.co.uk/wp-content/uploads/2020/03/dredd-2012-review.jpg?fit=1038%2C576&ssl=1)
+![Dredd 2012](https://i0.wp.com/cultfollowing.co.uk/wp-content/uploads/2020/03/dredd-2012-review.jpg?fit=1038%2C576&ssl=1](https://thecorvidreview.files.wordpress.com/2016/11/4074029-dredd2.jpg?w=1100))
 ## Never Had a Chance While They Were There:   **DREDD (2012)** 
 ##### November 28, 2023 | **Marvin T. Cayobit**
 
