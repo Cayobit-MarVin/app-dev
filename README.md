@@ -1,7 +1,7 @@
 # app-dev
 My first repository
 
-## Never Had a Chance While They Were There:  ~~ **Dreed (2012)** ~~
+## Never Had a Chance While They Were There:   **Dreed (2012)** 
 ##### November 28, 2023 | **Marvin T. Cayobit**
 <br>
 <br>
