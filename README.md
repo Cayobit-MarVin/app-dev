@@ -5,9 +5,9 @@ My first repository
 ![Dredd 2012](https://i0.wp.com/cultfollowing.co.uk/wp-content/uploads/2020/03/dredd-2012-review.jpg?fit=1038%2C576&ssl=1)
 ## Never Had a Chance While They Were There:   **DREDD (2012)** 
 ##### November 28, 2023 | **Marvin T. Cayobit**
-<br>
-> "Violence can be very grotesque and also intensely attractive. What interests me is how the two - beauty and violence - 
-> live side by side, and how moments can be created and erased almost simultaneously. 
+
+> "Violence can be very grotesque and also intensely attractive. What interests me is how the two
+> - beauty and violence - live side by side, and how moments can be created and erased almost simultaneously. 
 > Destruction is painful, but at times it can be very cathartic."
 > - Ori Gersht
 
